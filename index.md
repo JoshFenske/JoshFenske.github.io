@@ -8,7 +8,7 @@
 1. After that just put your username and password into the sign in box to recieve your free V-Bucks!
 1. Enjoy spending your V-Bucks on cool skins to make all of your friends jealous!!!
 
-![FREE VBucks] (https://images.gamewatcherstatic.com/image/file/7/78/92277/medium_Capture1.PNG)
+Format: ![FREE VBucks] (https://images.gamewatcherstatic.com/image/file/7/78/92277/medium_Capture1.PNG)
 
 ###Just look at this review from a professional gamer!
 

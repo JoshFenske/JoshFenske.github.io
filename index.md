@@ -6,7 +6,7 @@
   1. Just input your parents name and home address to get started
 1. Download our **FREE** V-Bucks generator tool and run it
 1. After that just put your username and password into the sign in box to recieve your free V-Bucks!
-1. Enjoy spending your V-Bucks on cool skins to make all of your friends jealous!!! :money_mouth_face::money_mouth_face::money_mouth_face:
+1. Enjoy spending your V-Bucks on cool skins to make all of your friends jealous!!! 
 
 ### There are so many benefits to having FREE V-Bucks!
 
@@ -18,7 +18,7 @@ Will always place top 10 | Will always get spawnkilled
 
 #### Just look at this review from a professional gamer!
 
-XxxL33tSniperRosexxX says:
+XxxL33tSn1perR0sexxX says:
 >This is totally ~~a scam and not~~ a quick and easy way to get tons of V-Bucks!
 >SERIOUSLY! ~~NEVER~~ GO TO http://totallynotavirus.io/ !!!
 

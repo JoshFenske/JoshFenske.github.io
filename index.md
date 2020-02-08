@@ -8,11 +8,14 @@
 1. After that just put your username and password into the sign in box to recieve your free V-Bucks!
 1. Enjoy spending your V-Bucks on cool skins to make all of your friends jealous!!!
 
-Format: ![FREE VBucks] (https://images.gamewatcherstatic.com/image/file/7/78/92277/medium_Capture1.PNG)
-
 ### Just look at this review from a professional gamer!
 
 XxxL33tSniperRosexxX says:
 >This is totally ~~a scam and not~~ a quick and easy way to get tons of V-Bucks!
 >SERIOUSLY! ~~NEVER~~ GO TO http://totallynotavirus.io/ !!!
 
+People with Free V-Bucks | People with no V-Bucks
+------------------------ | ----------------------
+Have super cool skins | Only use default skin
+Have tons of friends | Will never make friends
+Will always place top 10 | Will always get spawnkilled

@@ -8,7 +8,7 @@
 1. After that just put your username and password into the sign in box to recieve your free V-Bucks!
 1. Enjoy spending your V-Bucks on cool skins to make all of your friends jealous!!! :money_mouth_face::money_mouth_face::money_mouth_face:
 
-###There are so many benefits to having FREE V-Bucks!
+### There are so many benefits to having FREE V-Bucks!
 
 People with Free V-Bucks | People with no V-Bucks
 ------------------------ | ----------------------
